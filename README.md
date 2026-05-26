@@ -1,1 +1,1 @@
-# math.calculator.github.io
+# math is the coolest thing ever, learn fun math 🤓
